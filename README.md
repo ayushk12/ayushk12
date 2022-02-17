@@ -8,5 +8,5 @@
 - 💬 Ask me about React or any web related stuff.
 - 📫 How to reach me: LinkedIbn -https://www.linkedin.com/in/ayushkumar29/
 - 😄 Pronouns: He/His
-- ⚡ Fun fact:I love to play cricket anytime 
+- ⚡ Fun fact:I love to travel anytime 
 
